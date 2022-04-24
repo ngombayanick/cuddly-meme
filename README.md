@@ -1,0 +1,2 @@
+# cuddly-meme
+Someone hes just gone out of their wey to say something nice to you.They didn't have to do that.Do you think if they diidn't mean it they would say it? (Of course, there are always people who try to suck up to you..but hopefully you can see through it)  If you say "Oh no I'm not", you've essentially rejected that nice gesture .Don't make someone else feel rejected  because of your own shitty insecurities. Reward them for going out pf thier way to say something nice
